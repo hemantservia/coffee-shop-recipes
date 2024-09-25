@@ -27,4 +27,4 @@
 
 ### Sep 4
 
-- Top with whipped cream
+- Top with whipped cream and coconut powder
