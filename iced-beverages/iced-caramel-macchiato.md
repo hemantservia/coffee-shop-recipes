@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 2 shots espresso roast
+- 2 shots espresso roast or 1 as asked
 - 1 oz vanilla syrup
 - 3/4 cup of 2% milk
 - Ice to fill the glass
